@@ -2,7 +2,9 @@
 
 DNI: basic DNI stuff, proshippers, tiktok genshin fans, COAAL (coffin of andy and leyley) fans
 
-C + H and kisses are fine, please interact if you're in any of these fandoms.
+C + H and kisses are fine, i mostly hang out in the 18+ server but sometimes you can find me on the safe server, probably chatting with my friends, you're free to go up to me if you please.
+
+fandoms
 
 Project Moon, Entry point, The Post Traumatic Manifesto, Colt 2, The Mimic, Reverse 1999, MILGRAM, 
 Alice Schach And The Magical Orchestra, LadyMonsters, H:SR, PASWG, All Saints Street, Touhou, KKHTA
