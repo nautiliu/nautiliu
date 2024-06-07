@@ -1,6 +1,6 @@
 # Hello, I'm Mao.
 
-DNI: basic DNI stuff, proshippers, tiktok genshin fans, COAAL (coffin of andy and leyley) fans
+DNI: basic DNI stuff, proshippers, tiktok genshin fans(SLIGHT JOKE LOLOOL) , COAAL (coffin of andy and leyley) fans
 
 C + H and kisses are fine, i mostly hang out in the 18+ server but sometimes you can find me on the safe server, probably chatting with my friends, you're free to go up to me if you please.
 
