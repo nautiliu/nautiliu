@@ -22,8 +22,6 @@
 ⠀⠀⠀⠀ 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ 🎀 *PROSHIPPERS please dni! Or if you support any weird fetishes or lolicon!*
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀ ⠀ 🎀 *Minor, but I'm over the age of 15!*
-
 
 
 
