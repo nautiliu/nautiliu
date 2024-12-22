@@ -17,7 +17,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*I love all things sea related, The Post Traumatic Manifesto and Limbus Company!*
 
-⠀⠀⠀⠀ 🎀 *C + H is allowed, please tell me when I start to derail and start to be really weird.. I'm trying my best to recover. <3*
+⠀⠀⠀⠀ 🎀 *C + H is allowed, please tell me when I start to derail and start to be really weird..*
 
 ⠀⠀⠀⠀ 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ 🎀 *PROSHIPPERS please dni! Or if you support any weird fetishes or lolicon!*
